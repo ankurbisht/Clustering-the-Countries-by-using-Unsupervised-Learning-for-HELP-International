@@ -6,12 +6,21 @@ HELP International have been able to raise around $ 10 million. Now the CEO of t
 ### COUNTRIES IN DIRE NEEDS: 
 
 Burundi
+
 Congo, Dem. Rep.
+
 Niger
+
 Sierra Leone
+
 Mozambique
+
 Central African Republic
+
 Guinea-Bissau
+
 Burkina Faso
+
 Guinea
+
 Haiti
